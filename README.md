@@ -3,9 +3,6 @@
 - ## *pimenta*
 -  **ola, eu sou @Gabrielpimenta045**
 - :+1:O meu [e-mail](wesley.pimenta@escola.pr.gov.br)]
-- :+1:  
--  :+1:
--  
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
